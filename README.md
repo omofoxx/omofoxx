@@ -8,6 +8,8 @@ Pt addict! Usually online, more afk than not. Sorry if I don't respond to a whis
 
 FNF, Omori, ACNH, StH, and Pkmn enjoyer!! 
 
+Gen 5 enthusiast (Oshawott my beloved <3)
+
 C+H, W2i. (May not respond if I'm not around at the time.) 
 
 Updating this later.
