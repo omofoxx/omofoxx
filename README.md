@@ -6,12 +6,12 @@ I go by Omo or Atlas.
 
 Pt addict! Usually online, more afk than not. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. ^^'
 
-FNF, Omori, ACNH, StH, and Pkmn enjoyer!! 
+FNF, Omori, ACNH, StH, Eb, Bluey, SU and Pkmn enjoyer!! 
 
 Gen 5 enthusiast (Oshawott my beloved <3)
 
 C+H, W2i. (May not respond if I'm not around at the time.) 
 
-Updating this later.
+Updating this later when I have the time!
 
-Thank you for reading! :3
+Thank you for reading!! :3
