@@ -1,16 +1,15 @@
-## Hi there 👋
+![UqFbm0Y](https://github.com/user-attachments/assets/beb2a045-cc97-4a39-b913-854a05251d7b)
 
-<!--
-**omofoxx/omofoxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hello!!
 
-Here are some ideas to get you started:
+I go by Omo or Atlas.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Pt addict! Usually online, more afk than not. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. ^^'
+
+FNF, Omori, ACNH, StH, and Pkmn enjoyer!! 
+
+C+H, W2i. (May not respond if I'm not around at the time.) 
+
+Updating this later.
+
+Thank you for reading! :3
