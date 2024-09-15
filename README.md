@@ -10,7 +10,7 @@ FNF, Omori, ACNH, StH, Eb, Bluey, SU and Pkmn enjoyer!!
 
 Gen 5 enthusiast (Oshawott my beloved <3)
 
-C+H, W2i. (May not respond if I'm not around at the time.) 
+C+H, W2i / Iwcare. (May not respond if I'm not around at the time.) 
 
 Updating this later when I have the time!
 
