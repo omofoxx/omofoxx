@@ -10,6 +10,9 @@ FNF, Omori, ACNH, StH, Eb, M3, Bluey, SU and Pkmn enjoyer!!
 
 Gen 5 enthusiast (Oshawott my beloved <3)
 
+![ezgif-5-646d5926b8](https://github.com/user-attachments/assets/e26ba1ed-bc16-449c-a3b6-67e2e59c7ba9)
+
+
 C+H, W2i / Iwcare. (May not respond if I'm not around at the time.) 
 
 My discord is omofox. However please whisper/talk to me ingame before adding me on there.
@@ -17,3 +20,7 @@ My discord is omofox. However please whisper/talk to me ingame before adding me 
 Updating this later when I have the time!
 
 Thank you for reading!! :3
+
+![ezgif-4-42e5be0b14](https://github.com/user-attachments/assets/b5354ef0-f9ce-4070-8d37-c3a598188f98) ![ezgif-5-7c60d5a242](https://github.com/user-attachments/assets/c9f9cfea-7d71-41df-9952-ac06f7e7c45f)
+![ezgif-4-fcac184ff9](https://github.com/user-attachments/assets/4cf1131a-1960-4710-ac82-2c3c1f478e9c)
+
