@@ -6,6 +6,8 @@ I go by Omo or Atlas.
 
 Pt addict! Usually online, more afk than not. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. ^^'
 
+I communicate ingame a lot through nods/headshakes.
+
 FNF, Omori, ACNH, StH, Eb, M3, Bluey, SU and Pkmn enjoyer!! 
 
 Gen 5 enthusiast (Oshawott my beloved <3)
