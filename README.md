@@ -6,7 +6,7 @@ I go by Omo or Atlas.
 
 Pt addict! Usually online, more afk than not. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. ^^'
 
-I communicate ingame a lot through nods/headshakes.
+I communicate ingame a lot through nods/headshakes and boops.
 
 FNF, Omori, ACNH, StH, Eb/M2, M3, Bluey, SU and Pkmn enjoyer!! 
 
@@ -23,6 +23,5 @@ Updating this later when I have the time!
 
 Thank you for reading!! :3
 
-![ezgif-4-42e5be0b14](https://github.com/user-attachments/assets/b5354ef0-f9ce-4070-8d37-c3a598188f98) ![ezgif-5-7c60d5a242](https://github.com/user-attachments/assets/c9f9cfea-7d71-41df-9952-ac06f7e7c45f)
-![ezgif-4-fcac184ff9](https://github.com/user-attachments/assets/4cf1131a-1960-4710-ac82-2c3c1f478e9c)
+ ![ezgif-5-7c60d5a242](https://github.com/user-attachments/assets/c9f9cfea-7d71-41df-9952-ac06f7e7c45f)
 
