@@ -8,7 +8,7 @@ Pt addict! Usually online, more afk than not. Sorry if I don't respond to a whis
 
 I communicate ingame a lot through nods/headshakes.
 
-FNF, Omori, ACNH, StH, Eb, M3, Bluey, SU and Pkmn enjoyer!! 
+FNF, Omori, ACNH, StH, Eb/M2, M3, Bluey, SU and Pkmn enjoyer!! 
 
 Gen 5 enthusiast (Oshawott my beloved <3)
 
