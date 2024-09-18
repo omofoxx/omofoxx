@@ -17,7 +17,7 @@ Gen 5 enthusiast (Oshawott my beloved <3)
 
 C+H, W2i / Iwcare. (May not respond if I'm not around at the time.) 
 
-My discord is omofox. However please whisper/talk to me ingame before adding me on there.
+My discord is omofox. However please whisper/talk to me ingame before adding me on there. I do not typically text first nor am I the best at keeping a conversation up. 
 
 Updating this later when I have the time!
 
