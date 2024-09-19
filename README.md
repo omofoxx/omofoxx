@@ -10,6 +10,8 @@ I communicate ingame a lot through nods/headshakes and boops.
 
 FNF, Omori, ACNH, StH, Eb/M2, M3, Bluey, SU and Pkmn enjoyer!! 
 
+(I like other things too, but I didn't want the list to get too long.)
+
 Gen 5 enthusiast (Oshawott my beloved <3)
 
 ![ezgif-5-646d5926b8](https://github.com/user-attachments/assets/e26ba1ed-bc16-449c-a3b6-67e2e59c7ba9)
