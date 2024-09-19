@@ -15,7 +15,7 @@ Gen 5 enthusiast (Oshawott my beloved <3)
 ![ezgif-5-646d5926b8](https://github.com/user-attachments/assets/e26ba1ed-bc16-449c-a3b6-67e2e59c7ba9)
 
 
-C+H, W2i / Iwcare. (May not respond if I'm not around at the time.) 
+C+H, W2i / Iwcare. (May not respond if I'm not around at the time. I'm often afk for several hours at a time, meaning it could take a while for me to see a whisper.) 
 
 My discord is omofox. However please whisper/talk to me ingame before adding me on there. I do not typically text first nor am I the best at keeping a conversation up. 
 
