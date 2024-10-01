@@ -3,6 +3,12 @@
 Please read before inting! :)
 
 
+IT'S SPOOKY MONTH!!
+
+![ezgif-5-eb7c6b692a](https://github.com/user-attachments/assets/3b80650e-f4b2-459c-bb5b-c9b89f83021d)
+
+
+
 Hello!!
 
 I go by Omo or Atlas.
