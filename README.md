@@ -33,7 +33,8 @@ My discord is omofox. However please whisper/talk to me ingame before adding me 
 
 Updating this later when I have the time!
 
-Thank you for reading!! :3
+Thank you for reading!! :3 
 
- ![ezgif-5-7c60d5a242](https://github.com/user-attachments/assets/c9f9cfea-7d71-41df-9952-ac06f7e7c45f)
+![8jqj1311bdeb1](https://github.com/user-attachments/assets/c3e4bdf8-cba3-4cc8-a268-1081583b02ef)
+
 
