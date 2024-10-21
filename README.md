@@ -15,6 +15,8 @@ I go by Omo or Atlas.
 
 Pt addict! Usually online, more afk than not. If I randomly disappear for an extended period of time, I might've lost connection. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. ^^'
 
+I like to give pearls/clovers to really awesome people. :3
+
 I communicate ingame a lot through nods/headshakes and boops.
 CUDZ ENTHUSIAST!!
 
