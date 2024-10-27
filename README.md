@@ -11,7 +11,7 @@ IT'S SPOOKY MONTH!!
 
 Hello!!
 
-I go by Omo or Atlas.
+I go by $\text{\color{#ff8da1}Omo}$ or $\text{\color{#ff8da1}Atlas.}$
 
 Pt addict! Usually online, more afk than not. If I randomly disappear for an extended period of time, I might've lost connection. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. ^^'
 
@@ -19,6 +19,9 @@ I like to give pearls/clovers to really awesome people. :3
 
 I communicate ingame a lot through nods/headshakes and boops.
 CUDZ ENTHUSIAST!!
+
+I love the color $\text{\color{#9ca0ff}perwinkle}$
+
 
 FNF, Omori, AC, AJ, StH, Eb/M2, M3, Bluey, SU and Pkmn enjoyer!! 
 
