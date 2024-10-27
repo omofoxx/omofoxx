@@ -13,7 +13,7 @@ Hello!!
 
 I go by $\text{\color{#ff8da1}Omo}$ or $\text{\color{#ff8da1}Atlas.}$
 
-Pt addict! Usually online, more afk than not. If I randomly disappear for an extended period of time, I might've lost connection. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. ^^'
+Pt addict! Usually online, more afk than not. If I randomly disappear for an extended period of time, I might've lost connection. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. I am sometimes unorganized when writing (probably shows here) ^^'
 
 I like to give pearls/clovers to really awesome people. :3
 
