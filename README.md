@@ -22,7 +22,7 @@ CUDZ ENTHUSIAST!!
 Biggest fan of $\text{\color{#9ca0ff}perwinkle}$
 
 
-FNF, Omori, AC, AJ, StH, Eb/M2, M3, Bluey, SU and Pkmn enjoyer!! 
+FNF, Omori, AC, AJ, StH, Eb/M2, M3, Bluey, SU, DW and Pkmn enjoyer!! 
 
 (I like other things too, but I didn't want the list to get too long.)
 
