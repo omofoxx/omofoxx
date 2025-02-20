@@ -16,7 +16,7 @@ I like to give pearls/clovers to really awesome people. :3
 I communicate ingame a lot through nods/headshakes and boops.
 CUDZ ENTHUSIAST!!
 
-Biggest fan of $\text{\color{#9ca0ff}perwinkle}$
+Biggest fan of $\text{\color{#9ca0ff}periwinkle}$
 
 
 FNF, Omori, AC, AJ, StH, Eb/M2, M3, Bluey, SU, DW and Pkmn enjoyer!! 
