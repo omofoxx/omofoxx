@@ -5,9 +5,6 @@ Please read before inting! :)
 
 
 
-It's time to get holly and jolly
-
-
 Hello!!
 
 I go by $\text{\color{#ff8da1}Omo}$ or $\text{\color{#ff8da1}Atlas.}$
