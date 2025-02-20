@@ -33,7 +33,7 @@ Gen 5 enthusiast (Oshawott my beloved <3)
 
 C+H, W2i / Iwcare. (May not respond if I'm not around at the time. I'm often afk for several hours at a time, meaning it could take a while for me to see a whisper.) 
 
-My discord is omofox. However please whisper/talk to me ingame before adding me on there. I do not typically text first nor am I the best at keeping a conversation up. 
+My discord is omofox. However please only use this if you need to urgently contact me. (Also give me a heads up in whispers!!) 
 
 Updating this later when I have the time!
 
