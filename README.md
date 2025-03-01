@@ -1,7 +1,5 @@
 ![UqFbm0Y](https://github.com/user-attachments/assets/beb2a045-cc97-4a39-b913-854a05251d7b)
 
-Small hiatus on pt !
-
 
 Please read before inting! :)
 
