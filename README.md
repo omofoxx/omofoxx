@@ -9,7 +9,7 @@ Please read before inting! :)
 Hello!!
 Just a simple person who likes a lot of things
 
-I go by $\text{\color{#ff8da1}Omo}$ or $\text{\color{#ff8da1}Atlas.}$
+I go by Omo or Atlas !
 
 Pt addict! Usually online, but more afk than not. If I randomly disappear for an extended period of time, I might've lost connection. Sorry if I don't respond to a whisper, I'm often busy irl. Please be patient if my responses are slow, I get nervous easily. I am sometimes unorganized when writing (probably shows here) ^^'
 
@@ -18,7 +18,7 @@ I like to give pearls/clovers to really awesome people. :3
 I communicate ingame a lot through nods/headshakes and boops.
 CUDZ ENTHUSIAST!!
 
-Biggest fan of $\text{\color{#9ca0ff}periwinkle}$
+Biggest fan of periwinkle
 
 
 FNF, Omori, AC, AJ, StH, Eb/M2, M3, Forsaken, TR:UD, SU, DW and Pkmn enjoyer!! 
